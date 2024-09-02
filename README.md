@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @musfiq Rahman
+- 👋 Hi, I’m @musfiqur Rahman
 - 👀 I’m interested in technology and always eager to learn about new developments in the field.
 - 🌱 I’m currently learning Graphic Design
 - 💞️ I’m looking to collaborate on IT agency
