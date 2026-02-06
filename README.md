@@ -2,7 +2,7 @@
 - 👀 I’m interested in technology and always eager to learn about new developments in the field.
 - 🌱 I’m currently learning Graphic Design
 - 💞️ I’m looking to collaborate on IT agency
-- 📫 How to reach me [musfiqgfx@gmail.com]
+- 📫 How to reach me [musfiqur@email.com]
 - 😄 Pronouns: Musfiq gfx
 - ⚡ Fun fact: ...
 
